@@ -1,4 +1,4 @@
-[![MasterHead] (https://uc.xyz/14o3Gu?pub=link)](https://khushboogoel01.github.io)
+![](https://github.com/arvindkumar0003/arvindkumar0003/blob/89a5a40eb032a2eeecdb0415e507701771d5d7a2/IMG-20211127-WA0001.jpg)
 
 <h1 align="center">Hi 👋, I'm Arvind Kumar</h1>
 
